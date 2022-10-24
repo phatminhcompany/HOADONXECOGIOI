@@ -9,6 +9,7 @@
 ![Xelu_banhlop-Sakai](https://user-images.githubusercontent.com/113705782/190860151-4f084c36-bf23-4f65-9708-e6074dc8dfb4.jpg)
 ![hd1054(xe lu tinhgiaphuoc)](https://user-images.githubusercontent.com/113705782/190860109-b74b939d-02a2-4e8b-8ec7-a6e766ba6123.jpg)
 ![Xelu tinh_Sakai](https://user-images.githubusercontent.com/113705782/190860124-80389f5f-5497-4210-bab8-44731581dd6c.jpg)
+![1C22TVP_00000016](https://user-images.githubusercontent.com/113705782/197561100-06a8626a-a9b1-4f96-9298-d3cc8059efa1.jpg)
 # XE NHẬP TRỰC TIẾP TỪ NƯỚC NGOÀI:
 # XE TRÃI NHỰA VOGELE 2100:
 ![tokhaihaiquanruavogele2100(1)](https://user-images.githubusercontent.com/113705782/196441672-bf1d500a-d9a0-4894-8130-a03dff1fe346.jpg)
