@@ -33,6 +33,6 @@
 ![tokhaihaiquan lulang25T trang 0002](https://user-images.githubusercontent.com/113705782/190859888-4c3c38b1-b2d0-4a13-8e61-71c93f2f4dc6.jpg)
 ![tokhaihaiquan lulang25T trang 0003](https://user-images.githubusercontent.com/113705782/190859890-925d1296-8bb3-40a4-9651-03ea2089207b.jpg)
 # XE LU LÁNG 25 T CATERPILLAR.2:
-![tokhaihaiquang lulang25T(1)](https://user-images.githubusercontent.com/113705782/196441474-bf84f87c-b483-4607-a162-e23215070cef.jpg)
-![tokhaihaiquang lulang25T(2)](https://user-images.githubusercontent.com/113705782/196441488-e50ae99d-3bbf-4531-8ea8-91fbfb4ef031.jpg)
-![tokhaihaiquang lulang25T(3)](https://user-images.githubusercontent.com/113705782/196441496-80917e6f-f137-448e-98e9-43652b79b87f.jpg)
+![tokhaihaiquan lulang25T trang 0001](https://user-images.githubusercontent.com/113705782/200180794-8cc20c9d-cdaa-47cc-a264-13f5b105361a.jpg)
+![tokhaihaiquan lulang25T trang 0002](https://user-images.githubusercontent.com/113705782/200180798-e6285f12-7014-4931-a1bc-0c4ff94dfed4.jpg)
+![tokhaihaiquan lulang25T trang 0003](https://user-images.githubusercontent.com/113705782/200180801-22e7a731-ae4b-479d-9467-577e1849d9f4.jpg)
