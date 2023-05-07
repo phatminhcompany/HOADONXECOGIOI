@@ -11,6 +11,10 @@
 ![Xelu tinh_Sakai](https://user-images.githubusercontent.com/113705782/190860124-80389f5f-5497-4210-bab8-44731581dd6c.jpg)
 ![1C22TVP_00000016](https://user-images.githubusercontent.com/113705782/197561100-06a8626a-a9b1-4f96-9298-d3cc8059efa1.jpg)
 # XE NHẬP TRỰC TIẾP TỪ NƯỚC NGOÀI:
+# XE TRÃI NHỰA VOGELE 1800-3i:
+![ToKhaiHQ7N_105390315440-1](https://user-images.githubusercontent.com/113705782/236678119-27490413-2291-4d73-bb87-3ec51d8094c5.jpg)
+![ToKhaiHQ7N_105390315440-2](https://user-images.githubusercontent.com/113705782/236678125-0047e3b8-fc3c-415e-b815-510f27b29981.jpg)
+![ToKhaiHQ7N_105390315440-3](https://user-images.githubusercontent.com/113705782/236678126-7b2490b3-a1bf-4995-b3db-793614b32c97.jpg)
 # XE TRÃI NHỰA VOGELE 2100:
 ![tokhaihaiquanruavogele2100(1)](https://user-images.githubusercontent.com/113705782/196441672-bf1d500a-d9a0-4894-8130-a03dff1fe346.jpg)
 ![tokhaihaiquanruavogele2100(2)](https://user-images.githubusercontent.com/113705782/196441683-e20bb897-7c38-4634-af58-acc3402de7ef.jpg)
@@ -33,6 +37,11 @@
 ![tokhaihaiquan lulang25T trang 0002](https://user-images.githubusercontent.com/113705782/190859888-4c3c38b1-b2d0-4a13-8e61-71c93f2f4dc6.jpg)
 ![tokhaihaiquan lulang25T trang 0003](https://user-images.githubusercontent.com/113705782/190859890-925d1296-8bb3-40a4-9651-03ea2089207b.jpg)
 # XE LU LÁNG 25 T CATERPILLAR.2:
-![tokhaihaiquan lulang25T trang 0001](https://user-images.githubusercontent.com/113705782/200180794-8cc20c9d-cdaa-47cc-a264-13f5b105361a.jpg)
-![tokhaihaiquan lulang25T trang 0002](https://user-images.githubusercontent.com/113705782/200180798-e6285f12-7014-4931-a1bc-0c4ff94dfed4.jpg)
-![tokhaihaiquan lulang25T trang 0003](https://user-images.githubusercontent.com/113705782/200180801-22e7a731-ae4b-479d-9467-577e1849d9f4.jpg)
+![tokhaihaiquang lulang25T(1)](https://user-images.githubusercontent.com/113705782/236678313-2eab8e7f-7aa5-45d4-a367-439377a73723.jpg)
+![tokhaihaiquang lulang25T(2)](https://user-images.githubusercontent.com/113705782/236678317-f6a302ed-6982-422b-a2c9-f4313613acb6.jpg)
+![tokhaihaiquang lulang25T(3)](https://user-images.githubusercontent.com/113705782/236678318-77ca9589-9926-47e9-b3fd-8ca6fa8064cc.jpg)
+# XE LU LÁNG 25 T CATERPILLAR.3 & XE LU LANG 25 TAN DYNAPAC CP271:
+![ToKhaiHQ7N_105375486533 2xelulang-1](https://user-images.githubusercontent.com/113705782/236678366-3d4b9314-1052-4254-bfa2-ecf7dbf6c367.jpg)
+![ToKhaiHQ7N_105375486533 2xelulang-2](https://user-images.githubusercontent.com/113705782/236678372-862d9a5a-c792-4a1d-bf1c-c3e3fa7860dc.jpg)
+![ToKhaiHQ7N_105375486533 2xelulang-3](https://user-images.githubusercontent.com/113705782/236678376-277d1eec-34d6-4ff5-b96b-2a24aeb93639.jpg)
+![ToKhaiHQ7N_105375486533 2xelulang-4](https://user-images.githubusercontent.com/113705782/236678377-902eacc7-ae3c-4cac-b927-fb6e145983c0.jpg)
